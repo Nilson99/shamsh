@@ -1,1 +1,1 @@
-# shamsh
+# WEB SITE НЕ РАБОТАЕТ
